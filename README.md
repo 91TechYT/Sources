@@ -9,7 +9,9 @@ Music used from the soundtrack of 'Persona 5': https://www.youtube.com/playlist?
 
 Music used from the soundtrack of 'Sonic 3': https://www.youtube.com/playlist?list=PLvNp0Boas721ZhOX_U084B4Jrxdr8rJOj
 
-Tracks used (in order):
+
+
+## Tracks used (in order):
 
 Persona 5 OST - Life Goes On
 
