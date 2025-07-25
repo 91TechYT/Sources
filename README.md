@@ -12,11 +12,19 @@ Music used from the soundtrack of 'Sonic 3': https://www.youtube.com/playlist?li
 Tracks used (in order):
 
 Persona 5 OST - Life Goes On
+
 Persona 5 OST - Phantom
+
 HOME - Phantom
+
 Sonic 3 OST - Ice Cap Zone, Act 1
+
 Persona 5 OST - Butterfly Kiss
+
 HOME - 18
+
 Persona 5 OST - Wake Up, Get Up, Get Out There - Instrumental Version
+
 HOME - Bright Lights In Silent Rooms
+
 HOME - Resonance
